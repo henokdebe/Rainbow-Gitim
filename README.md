@@ -1,4 +1,4 @@
-# Rainbow-Gitim and unicorns looking forward to meet TERET TERET
+AKUKUKULU 
 Trying to understand git hub and unicorns
 
 im very exited to learn git hub 
