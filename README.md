@@ -1,4 +1,4 @@
-# Rainbow-Gitim and unicorns
+# Rainbow-Gitim and unicorns looking forward to meet TERET TERET
 Trying to understand git hub and unicorns
 
 im very exited to learn git hub 
@@ -11,3 +11,4 @@ am strong
 am adrimmer
 lets do it
 good luck hena
+Lets do it
