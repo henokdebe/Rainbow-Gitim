@@ -1,10 +1,12 @@
-# Rainbow-Gitim
-Trying to understand git hub
+# Rainbow-Gitim and unicorns
+Trying to understand git hub and unicorns
 
 im very exited to learn git hub 
 am using github tutorials on youtube
 rainbow paem is funny
-am a winner ]
+am a winner 
+fairy tails 
+fast typing]
 am strong
 am adrimmer
 lets do it
